@@ -1,1 +1,3 @@
-# examen_integrador
+Mariana Gonzalez
+
+Mauricio Vargas
